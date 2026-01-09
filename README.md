@@ -1,0 +1,1 @@
+t is a complete e-commerce platform designed to connect local Rwandan artisans with customers who appreciate handmade, authentic products. The platform provides a digital marketplace where artisans can showcase and sell their handcrafted goods including pottery, textiles, jewelry, woodwork, art, leather goods, metalwork, and basketry.
